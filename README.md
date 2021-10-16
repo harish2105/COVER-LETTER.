@@ -4,7 +4,7 @@
 October 16, 2021  
 
 **Hiring manager**  
-ontumm Education Pvt Limited  
+ontum Education Pvt Limited  
 Bangalore-22  
 
 Dear Hiring Manager,  
